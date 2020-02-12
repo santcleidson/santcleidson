@@ -1,2 +1,0 @@
-# santcleidson
-Apenas um aprendiz.
